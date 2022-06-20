@@ -1,0 +1,1 @@
+Yeni yapmış olduğum proxy veya proxy olmadan kişi takip ve playlist beğeni projelerimi yakında piyasaya sürmeyi düşünüyorum.
